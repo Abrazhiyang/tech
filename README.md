@@ -1,4 +1,4 @@
-# For Fun :link: https://Abrayang.github.io/tech
+# For Fun :link: https://Abrazhiyang.github.io/tech
 ### :page_facing_up: [2](https://Abrazhiyang.github.io/tech/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 237 
